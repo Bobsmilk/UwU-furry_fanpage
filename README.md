@@ -1,2 +1,2 @@
-# UwU-furry_fanpage
+# UwU-furry-fanpage
 Murr~ Murr~ Murr~
